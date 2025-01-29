@@ -9,5 +9,5 @@ da minha formação, me permitirão contribuir de maneira significativa.
 Estou à procura de um ambiente dinâmico onde eu possa aplicar meu conhecimento em tecnologia e continuar aprendendo, ao mesmo 
 tempo em que contribuindo para o crescimento e sucesso. 
 Acredito que a experiência adquirida ao longo dos anos me proporcionou uma visão mais ampla e habilidades valiosas que, combinadas]
-com a minha formação e os cursos recentes, me tornarão um ativo valioso.
+com a minha formação e os cursos recentes, me tornarão um ativo valioso..
 
